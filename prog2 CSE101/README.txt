@@ -1,0 +1,1 @@
+As approved by the TA on Piazza, I used index 1 in my assignment. 
